@@ -1,0 +1,1 @@
+# yasuhisuzuki.github.io
